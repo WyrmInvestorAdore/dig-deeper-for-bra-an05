@@ -1,4 +1,4 @@
-#  
+#  custom one tap Script is the best one tap Script, featuring anti-ban and no cooldown. Safe and powerful for all your needs.
 
 
 
